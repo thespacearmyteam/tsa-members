@@ -1,1 +1,1 @@
-# [TSA Discord](https://discord.gg/0YjmLPDzPrSLB8k0) 
+# [TSA](https://discord.gg/0YjmLPDzPrSLB8k0) 
